@@ -10,5 +10,5 @@
   [LinkedIn](https://www.linkedin.com/in/edward-montes-hernandez-76534973/) |
   [My Certifications](https://www.credly.com/users/edward-montes/badges) 
 - 😄 Pronouns: He / His
-- ⚡ Fun fact: 
+- ⚡ Fun fact: [Currently learning](https://app.pluralsight.com/profile/edward-montes)
 
